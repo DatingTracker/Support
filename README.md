@@ -1,5 +1,5 @@
 # Support
 
-Thank you for using Dating Tracker.
+Thank you for using Dating Tracker for iPhone and iPad!
 If you need support or have any questions or comments please write me an email:
 ironporty@yahoo.com
